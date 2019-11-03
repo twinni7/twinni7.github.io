@@ -1,0 +1,24 @@
+# main links
+#main:
+#  - title: "Quick-Start Guide"
+#    url: https://mmistakes.github.io/minimal-mistakes/docs/quick-start-guide/
+  # - title: "About"
+  #   url: https://mmistakes.github.io/minimal-mistakes/about/
+  # - title: "Sample Posts"
+  #   url: /year-archive/
+  # - title: "Sample Collections"
+  #   url: /collection-archive/
+  # - title: "Sitemap"
+  #   url: /sitemap/
+
+main:
+  - title: ☰
+    url: /
+  - title: Tâm Thức
+    url: /tam-thuc/
+  - title: Siêu Hình
+    url: /sieu-hinh/
+  - title: Sống Đẹp
+    url: /song-dep/
+  - title: Nuôi Con
+    url: /nuoi-con/
