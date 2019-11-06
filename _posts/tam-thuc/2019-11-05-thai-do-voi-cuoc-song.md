@@ -27,7 +27,7 @@ Phần lớn thời gian, niềm tin diễn giải các sự kiện một cách 
 
 Lý thú hơn, chúng ta luôn tin rằng giọng nói bên trong này là chính xác và đúng.
 
-Thật tiếc giọng nói thường đưa ra các bình luật xuyên tác và thiên vị. Lý do là những việc đánh giá bình luận đó không dựa trên sự thật mà chỉ dựa trên niềm tin cá nhân. Chúng ta không có đầy đủ thông tin về sự việc đang đánh giá, chúng ta không đứng vào vị trí của người khác, hay do quan điểm cá nhân làm nổi trội những thông tin chúng ta muốn thấy và làm mờ đi thông tin chúng ta không thích ([#1](tam-thuc/2019-04-14-thay-cai-chung-ta-tin/), [#2](tam-thuc/2019-04-10-tin-cai-chung-ta-thay/)).
+Thật tiếc giọng nói thường đưa ra các bình luật xuyên tác và thiên vị. Lý do là những việc đánh giá bình luận đó không dựa trên sự thật mà chỉ dựa trên niềm tin cá nhân. Chúng ta không có đầy đủ thông tin về sự việc đang đánh giá, chúng ta không đứng vào vị trí của người khác, hay do quan điểm cá nhân làm nổi trội những thông tin chúng ta muốn thấy và làm mờ đi thông tin chúng ta không thích ([#1](/tam-thuc/2019-04-14-thay-cai-chung-ta-tin/), [#2](/tam-thuc/2019-04-10-tin-cai-chung-ta-thay/)).
 
 Từ đó, những cảm xúc xấu (như sự buồn bã thất vọng) thường là kết quả của những kết luận tiêu cực đến từ giọng nói bên trong kia. Chúng ta có xu hướng bám chặt lấy những niềm tin tiêu cực và độc hại. Theo một cách nào đó, chúng ta thường thỏa mãn cơn đói cảm xúc bằng việc cào cấu vào những vết đau, vật lộn với những cẳng thẳng, thổi bung lên những cơn tức. Nó giống như nhà tù và xiềng xích không thể thoát ra.
 
