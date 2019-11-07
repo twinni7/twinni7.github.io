@@ -1,9 +1,10 @@
 ---
-title: "Sống hời hợt, một tâm trí mệt mỏi"
+title: "Sống hời hợt là gì"
 categories:
  - tâm thức
 tags:
- - phương pháp học
+ - ý thức
+ - chánh niệm
 last_modified_at: 2019-02-24
 ---
 

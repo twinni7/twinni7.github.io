@@ -4,6 +4,7 @@ categories:
  - tâm thức
 tags:
  - phật giáo
+ - thiền
 last_modified_at: 2019-03-10
 ---
 

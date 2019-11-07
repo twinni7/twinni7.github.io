@@ -4,6 +4,7 @@ categories:
   - tâm thức
 tags:
   - nhân quả
+  - phật giáo
 last_modified_at: 2019-09-04
 ---
 
