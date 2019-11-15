@@ -56,12 +56,12 @@ Chúng ta thường nhầm lẫn giác ngộ là một sự biến đổi mạnh
 
 Giác ngộ là một trạng thái. Con đường đến giác ngộ là một quá trình.
 
-Khi đã hiểu bản chất của giác ngộ, chúng ta sẽ nhận ra thấy con đường để đạt được nó. Con đường đó chính là quá trình gỡ bỏ lăng kính cái tôi ra khỏi tâm thức. Điều này không dễ dang như gỡ một cái kính mắt xuống và không thể có trong một vài ngày. Lăng kính cái tôi giống như một lớp màng chắn dính chặt vào tâm thức, được nuôi sống và đắp dày lên qua năm tháng từ những thứ mà cuộc sống mang lại cho chúng ta.
+Khi đã hiểu bản chất của giác ngộ, chúng ta sẽ nhận ra thấy con đường để đạt được nó. Con đường đó chính là quá trình gỡ bỏ lăng kính cái tôi ra khỏi tâm thức. Điều này không dễ dàng như gỡ một cái kính mắt xuống và không thể có trong một vài ngày. Lăng kính cái tôi giống như một lớp màng chắn dính chặt vào tâm thức, được nuôi sống và đắp dày lên qua năm tháng từ những thứ mà cuộc sống mang lại cho chúng ta.
 
 Con đường đi đến giác ngộ gồm hai phần:
 
  1. Bóc bỏ đi những lớp lăng kính cái tôi dày cộp đang dính chặt vào tâm thức.
- 2. Giữ không cho cuộc đời ném thêm những tạp chất bồi đắp vào lăng kính đó.
+ 2. Giữ không cho cuộc đời ném thêm những tạp chất bồi đắp lăng kính đó.
 
 Quá trình tiến đến giác ngộ sẽ bao gồm rất nhiều những lần "ngộ". Qua nhiều năm quan sát mụ vợ, mình thấy lâu lâu mụ lại lại thấm thía một vấn đề nào đó và thốt lên "à ha". Trên con đường tâm thức, mụ vợ mình cũng có những bước đi "ngộ ra". Mỗi bước chân dài hay ngắn phụ thuộc vào số lượng *cái tôi* mà lần chứng ngộ đó rũ bỏ được. Cho đến khi hoàn toàn thanh tịnh.
 
