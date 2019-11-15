@@ -30,19 +30,19 @@ Chúng ta dành rất thời gian để đi tìm cái bóng đó, có những ng
 
 Người đi tìm giác ngộ tiếp tục quan sát *cái tôi* thông qua *lăng kính cái tôi*.
 
-Điểm này thật không dễ vì lăng kính cái tôi đã làm méo mó mọi sự thật mà chúng ta quan sát. Chúng ta đánh giá, so sánh, liên tưởng, suy luật... thông qua lăng kính đó. 
+Điểm này thật không dễ vì lăng kính cái tôi đã làm méo mó mọi sự thật mà chúng ta quan sát. Chúng ta đánh giá, so sánh, liên tưởng, suy luận... thông qua lăng kính đó. Sự thật không còn là sự thật và đó là lý do cho tất cả các vấn đề của tâm thức.
 
 Giác ngộ, đó là khi chúng ta đã hoàn toàn gỡ bỏ được lăng kính cái tôi và nhìn thế giới một cách chân thật. Người giác ngộ sẽ không còn nghi hoặc và có khả năng thông suốt những quy luật mà trước đây không thể cảm ngộ. Người giác ngộ không còn cảm giác khổ đau, không còn cảm giác hạnh phúc, vì những thứ đó thuộc về cái tôi. Sự an lạc tĩnh lặng tràn ngập như ánh nắng khi mọi bản thể của thế giới đều được quan sát một cách sáng tỏ.
 
-Người giác ngộ từ nay quan sát bằng con mắt chân thật: các mối quan hệ xã hội, quy luật nhân quả, quy luật sinh diệt của vạn vật, quy luật cảm xúc và tâm thức của chúng sinh... Người giác ngộ nhìn thấy vũ trụ là một không còn sự phân biệt. Người giác ngộ nhìn thấy tính không.
+Người giác ngộ từ nay quan sát bằng con mắt chân thật: các mối quan hệ xã hội, quy luật nhân quả, quy luật sinh diệt của vạn vật, quy luật cảm xúc và tâm thức của chúng sinh... Người giác ngộ nhìn thấy vũ trụ là một và không có sự phân biệt. Người giác ngộ nhìn thấy tính không của vạn vật.
 
-Khi bỏ đi lăng kính cái tôi, người giác ngộ cũng lập tức nhìn thấy chính cái tôi đó và nhìn thấy cái lăng kính đó. Người giác ngộ sẽ không sử dụng lăng kính cái tôi đó nữa vì đã biết và từ bỏ nó. Giác ngộ từ đây là một trạng thái khác của khả năng nhận thức.
+Khi bỏ đi lăng kính cái tôi, người giác ngộ cũng lập tức nhìn thấy chính *cái tôi* đó và nhìn thấy cái *lăng kính* đó. Người giác ngộ sẽ không sử dụng lăng kính cái tôi đó nữa vì đã biết và từ bỏ nó. Giác ngộ từ đây là một trạng thái khác tuyệt đối nhận thức.
 
 # Những nhầm lẫn về giác ngộ
 
-Chúng ta thường nhầm lẫn cho rằng giác ngộ là một trải nghiệm của sự tỉnh thức. Chúng ta cho rằng giác ngộ giống như những phép lạ thông thiên hay những trải nghiệm thần thức. Phần lớn những chuyện đó là ảo giác. Giác ngộ là một năng lực của tâm thức, trong khi chánh niệm tỉnh thức mới là một trạng thái trải nghiệm. Khi chúng ta coi giác ngộ là một sự trải nghiệm, chúng ta chạy theo và tìm kiếm nó. Khi loại bỏ được lăng kính cái tôi, chúng ta không còn tìm kiếm nữa. Mọi thứ xung quanh chính là lẽ thật.
+Chúng ta thường nhầm lẫn cho rằng giác ngộ là một trải nghiệm của sự tỉnh thức. Chúng ta cho rằng giác ngộ giống như những phép lạ thông thiên hay những trải nghiệm thần thức. Phần lớn những chuyện đó chỉ là ảo giác (hoặc không?). Giác ngộ là một năng lực của tâm thức, trong khi chánh niệm tỉnh thức mới là một trạng thái trải nghiệm. Khi chúng ta coi giác ngộ là một sự trải nghiệm, chúng ta chạy theo và tìm kiếm nó. Giác ngộ không phải là một trải nghiệm.
 
-Chúng ta thường nhầm lẫn cho rằng giác ngộ là trí tuệ siêu việt. Về mặt tâm thức có thể nói: giác ngộ là chất và trí tuệ là lượng. Đạt tới giác ngộ là đạt khả năng quan sát sự thật, và việc tiếp theo của người giác ngộ là quan sát. Khi tiếp tục quan sát và trải nghiệm, người giác ngộ sẽ thu thập và chứng ngộ những trí tuệ cao việt hơn. Một trong những trí tuệ đó là trí tuệ giải thoát, giúp cho nhân loại thoát khỏi mọi khổ đau.
+Chúng ta thường nhầm lẫn cho rằng giác ngộ là trí tuệ siêu việt. Về mặt tâm thức mà nói: giác ngộ là *chất* và trí tuệ là *lượng*. Giác ngộ là đạt khả năng quan sát sự thật, và việc tiếp theo của người giác ngộ là quan sát. Khi tiếp tục quan sát và trải nghiệm, người giác ngộ sẽ thu thập và chứng ngộ những trí tuệ cao việt hơn. Một trong những trí tuệ đó là trí tuệ giải thoát, giúp cho nhân loại thoát khỏi mọi khổ đau.
 
 Chúng ta thường nhầm lẫn cho rằng giác ngộ là một sự biến đổi mạnh mẽ khác biệt. Thực chất, giác ngộ là một trạng thái nhận thức khác. *Lăng kính cái tôi* cũng mang lại vô số trạng thái nhận thức và đa phần bị méo mó: chúng ta nhận thức về hình ảnh của bản thân cho dù cái bản thân đó không thực tồn tại, chúng ta thấy sự thù địch từ cuộc sống nhưng thực chỉ là ảo giác. Giác ngộ là một trạng thái nhận thức tốt nhất và tốt hơn tất cả các trạng thái khác. 
 
