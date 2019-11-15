@@ -26,35 +26,43 @@ Chúng ta dành rất thời gian để đi tìm cái bóng đó, có những ng
 
 Định vị được bản thân là khi chúng ta nắm được cái bóng phản chiếu của thế giới trong nhận thức của chúng ta. Nhiều người sẽ dừng lại ở đó và sống một cuộc đời tươi đẹp. Nhiều người sẽ tiếp tục quan sát cái bóng đó.
 
-# Giác ngộ là khả năng nhận thức chân thật
+# Tại sao phải gỡ bỏ lăng kính cái tôi
 
-Người đi tìm giác ngộ tiếp tục quan sát *cái tôi* thông qua *lăng kính cái tôi*.
+Khi tiếp tục quan sát cái bóng, cái tôi, cái phản chiếu của cuộc sống, chúng ta dần nhận ra những sự méo mó mà lăng kính đó mang lại. Trong mọi sự việc, lăng kính ấy khiến chúng ta đánh giá, so sánh, liên tưởng, suy luận... Với bất kỳ sự can thiệp nhỏ nhất nào của cái tôi, sự thật không còn là sự thật nữa. Cái thực tại mà chúng ta quan sát đã bị gia vị thêm bởi định kiến, kinh nghiệm và sự dò đoán của tâm trí. Sự thật bị méo mó là lý do cho tất cả các vấn đề của tâm thức. Dưới đây là hai trong số rất nhiều các mâu thuẫn.
 
-Điểm này thật không dễ vì lăng kính cái tôi đã làm méo mó mọi sự thật mà chúng ta quan sát. Chúng ta đánh giá, so sánh, liên tưởng, suy luận... thông qua lăng kính đó. Sự thật không còn là sự thật và đó là lý do cho tất cả các vấn đề của tâm thức.
+Thông qua lăng kính cái tôi, chúng ta nhìn thấy những điều thù địch trong cuộc sống. Chúng ta chỉ kết bạn với những người có cách nhìn và cách nghĩ tương đồng và phê phán những người khác mình. Chúng ta không nhận ra rằng mỗi mỗi tảng đá, mỗi ngọn cây hay mỗi con vật đều có [câu chuyện của riêng mình](https://www.youtube.com/watch?v=G1CLhkXX4lU).
 
-Giác ngộ, đó là khi chúng ta đã hoàn toàn gỡ bỏ được lăng kính cái tôi và nhìn thế giới một cách chân thật. Người giác ngộ sẽ không còn nghi hoặc và có khả năng thông suốt những quy luật mà trước đây không thể cảm ngộ. Người giác ngộ không còn cảm giác khổ đau, không còn cảm giác hạnh phúc, vì những thứ đó thuộc về cái tôi. Sự an lạc tĩnh lặng tràn ngập như ánh nắng khi mọi bản thể của thế giới đều được quan sát một cách sáng tỏ.
+Thông qua lăng kính cái tôi, chúng ta nhìn thấy bản thân mình đặc biệt và sinh ra tâm phân biệt. Vì phân biệt, chúng ta đánh mất sự trân quý đối với những người xung quanh, sẵn sàng làm hại môi trường và phê phán công sức của người khác. Chúng ta không nhận ra rằng tất cả chỉ là một, không hề có hai.
 
-Người giác ngộ từ nay quan sát bằng con mắt chân thật: các mối quan hệ xã hội, quy luật nhân quả, quy luật sinh diệt của vạn vật, quy luật cảm xúc và tâm thức của chúng sinh... Người giác ngộ nhìn thấy vũ trụ là một và không có sự phân biệt. Người giác ngộ nhìn thấy tính không của vạn vật.
+Trên con đường đi tìm sự chân thật, người đi tìm giác ngộ phải gỡ bỏ lăng kính cái tôi đến mức triệt để.
 
-Khi bỏ đi lăng kính cái tôi, người giác ngộ cũng lập tức nhìn thấy chính *cái tôi* đó và nhìn thấy cái *lăng kính* đó. Người giác ngộ sẽ không sử dụng lăng kính cái tôi đó nữa vì đã biết và từ bỏ nó. Giác ngộ từ đây là một trạng thái khác tuyệt đối nhận thức.
+# Sự giác ngộ
+
+Khi gỡ bỏ đi lắng kính cái tôi, mọi sự quan sát đều trở nên chân thật tuyệt đối. Người giác ngộ sẽ không còn nghi hoặc và có khả năng thông suốt những quy luật mà trước đây không thể cảm ngộ. Người giác ngộ không còn cảm giác khổ đau, không còn cảm giác hạnh phúc, vì những thứ đó thuộc về cái tôi. Sự an lạc tĩnh lặng tràn ngập như ánh nắng khi mọi bản thể của thế giới đều được quan sát một cách sáng tỏ.
+
+Người giác ngộ từ nay quan sát bằng con mắt chân thật: các mối quan hệ xã hội, quy luật nhân quả, quy luật sinh diệt của vạn vật, quy luật cảm xúc và tâm thức của chúng sinh... Người giác ngộ nhìn thấy vũ trụ là một và không có sự phân biệt. Người giác ngộ nhìn thấy tính không của vạn vật. Người giác ngộ nhận ra cái tôi chỉ là ảo ảnh.
+
+Từ việc nhìn rõ lẽ chân thật, người giác ngộ tiếp tục quan sát và chiêm nghiệm. Nhờ nắm được bản thể chân thật của tâm thức, xã hội và vũ trụ, người giác ngộ đạt được những trí tuệ siêu việt hơn. Một trong những trí tuệ đó là trí tuệ giải thoát, một sự thật đã được thấu tỏ và truyền lại thông qua bậc đại giác ngộ.
 
 # Những nhầm lẫn về giác ngộ
 
-Chúng ta thường nhầm lẫn cho rằng giác ngộ là một trải nghiệm của sự tỉnh thức. Chúng ta cho rằng giác ngộ giống như những phép lạ thông thiên hay những trải nghiệm thần thức. Phần lớn những chuyện đó chỉ là ảo giác (hoặc không?). Giác ngộ là một năng lực của tâm thức, trong khi chánh niệm tỉnh thức mới là một trạng thái trải nghiệm. Khi chúng ta coi giác ngộ là một sự trải nghiệm, chúng ta chạy theo và tìm kiếm nó. Giác ngộ không phải là một trải nghiệm.
+Chúng ta thường nhầm lẫn giác ngộ là một trải nghiệm của sự tỉnh thức. Chúng ta cho rằng giác ngộ giống như những phép lạ thông thiên hay những trải nghiệm thần thức. Phần lớn những chuyện đó chỉ là ảo giác (hoặc không?). Giác ngộ là một năng lực của tâm thức, trong khi chánh niệm tỉnh thức mới là một trạng thái trải nghiệm. Khi chúng ta coi giác ngộ là một sự trải nghiệm, chúng ta chạy theo và tìm kiếm nó. Giác ngộ không phải là một trải nghiệm.
 
-Chúng ta thường nhầm lẫn cho rằng giác ngộ là trí tuệ siêu việt. Về mặt tâm thức mà nói: giác ngộ là *chất* và trí tuệ là *lượng*. Giác ngộ là đạt khả năng quan sát sự thật, và việc tiếp theo của người giác ngộ là quan sát. Khi tiếp tục quan sát và trải nghiệm, người giác ngộ sẽ thu thập và chứng ngộ những trí tuệ cao việt hơn. Một trong những trí tuệ đó là trí tuệ giải thoát, giúp cho nhân loại thoát khỏi mọi khổ đau.
+Chúng ta thường nhầm lẫn giác ngộ là trí tuệ siêu việt. Về mặt tâm thức mà nói: giác ngộ phương tiện để đạt được trí tuệ siêu việt. Người giác ngộ phải tiếp tục chiêm nghiệm và xây dựng trí tuệ dựa trên một mục đích nào đó, ví dụ như mục đích giải thoát khổ đau.
 
-Chúng ta thường nhầm lẫn cho rằng giác ngộ là một sự biến đổi mạnh mẽ khác biệt. Thực chất, giác ngộ là một trạng thái nhận thức khác. *Lăng kính cái tôi* cũng mang lại vô số trạng thái nhận thức và đa phần bị méo mó: chúng ta nhận thức về hình ảnh của bản thân cho dù cái bản thân đó không thực tồn tại, chúng ta thấy sự thù địch từ cuộc sống nhưng thực chỉ là ảo giác. Giác ngộ là một trạng thái nhận thức tốt nhất và tốt hơn tất cả các trạng thái khác. 
+Chúng ta thường nhầm lẫn giác ngộ là một sự biến đổi mạnh mẽ khác biệt. Thực chất, giác ngộ là một trạng thái nhận thức giống như các trạng thái khác mà *lăng kính cái tôi* mang lại. Tuy nhiên, giác ngộ là trạng thái có tính tuyệt đối, tốt nhất và tốt hơn tất cả các trạng thái khác. Giác ngộ có tính tuyệt đối, nhưng không phải dị biệt.
 
-# Tu tập hướng đến giác ngộ
+# Con đường đến giác ngộ
 
-Khi đã hiểu bản chất của giác ngộ, chúng ta cũng thấy rõ bản của sự tu tập. Tu tập chính là quá trình gỡ bỏ lăng kính cái tôi ra khỏi tâm thức của chúng ta. Điều này không dễ dang như gỡ một cái kính mắt xuống. Lăng kính cái tôi giống như một lớp màng chắn dính chặt vào đôi mắt tâm thức. Lăng kính cái tôi được nuôi sống và đắp dày lên qua năm tháng từ những thứ mà cuộc sống mang lại cho chúng ta.
+Giác ngộ là một trạng thái. Con đường đến giác ngộ là một quá trình.
 
-Hướng đến giác ngộ chỉ gồm hai phần:
+Khi đã hiểu bản chất của giác ngộ, chúng ta sẽ nhận ra thấy con đường để đạt được nó. Con đường đó chính là quá trình gỡ bỏ lăng kính cái tôi ra khỏi tâm thức. Điều này không dễ dang như gỡ một cái kính mắt xuống và không thể có trong một vài ngày. Lăng kính cái tôi giống như một lớp màng chắn dính chặt vào tâm thức, được nuôi sống và đắp dày lên qua năm tháng từ những thứ mà cuộc sống mang lại cho chúng ta.
+
+Con đường đi đến giác ngộ gồm hai phần:
 
  1. Bóc bỏ đi những lớp lăng kính cái tôi dày cộp đang dính chặt vào tâm thức.
  2. Giữ không cho cuộc đời ném thêm những tạp chất bồi đắp vào lăng kính đó.
 
 Quá trình tiến đến giác ngộ sẽ bao gồm rất nhiều những lần "ngộ". Qua nhiều năm quan sát mụ vợ, mình thấy lâu lâu mụ lại lại thấm thía một vấn đề nào đó và thốt lên "à ha". Trên con đường tâm thức, mụ vợ mình cũng có những bước đi "ngộ ra". Mỗi bước chân dài hay ngắn phụ thuộc vào số lượng *cái tôi* mà lần chứng ngộ đó rũ bỏ được. Cho đến khi hoàn toàn thanh tịnh.
 
-Có gì ở phía bên kia bờ giác ngộ mà các bậc thánh nhân đã thấy?
+Chỉ có đi hết con đường đó chúng ta mới nhìn được phía bên kia bờ giác ngộ có gì, là những gì các bậc thánh nhân đã thấy.
