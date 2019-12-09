@@ -13,11 +13,11 @@ last_modified_at: 2019-12-09
 
 # Về Ella
 
-Ella trước giờ không học các giáo lý, không chủ động tìm kiếm chân lý, nhưng không phản đối hay định kiến với các vấn đề tâm linh bao giờ. Cuộc sống bình thường diễn ra với nhiều việc cần làm, kèm theo là những căng thẳng tất yếu. Ella bắt đầu đọc một số sách self-help, Ella cố gắng sắp xếp cuộc sống, Ella suy nghĩ. Một việc trong số nhiều việc Ella làm là cố gắng hiểu tâm trí và cảm xúc bản thân hơn để đẩy lùi những căng thẳng.
+Ella trước giờ không học theo các giáo lý, không chủ động đi theo các tôn giáo, Ella cũng không phản đối hay định kiến với các vấn đề tâm linh bao giờ. Cuộc sống bình thường diễn ra với nhiều việc cần làm, kèm theo là những căng thẳng tất yếu. Ella bắt đầu đọc một số sách: ban đầu là sách self-help như Quẳng gánh lo đi để sống và Đắc nhân tâm (Dan Canergy), sau đó là cuốn Trái tim mặt trời (Thích Nhất Hạnh). Ella cố gắng sắp xếp cuộc sống, Ella suy nghĩ. Một việc trong số nhiều việc Ella làm là cố gắng hiểu tâm trí và cảm xúc bản thân hơn để đẩy lùi những căng thẳng.
 
-Sau một thời gian tìm kiếm, Ella dừng lại ở một phương pháp: **Tập sống trong hiện tại, nhìn mọi thứ như thật, quan sát sâu sắc những thứ diễn ra bên ngoài và bên trong**.
+Ella dừng lại ở một phương pháp: **Tập sống trong hiện tại, nhìn mọi thứ như thật, quan sát sâu sắc những thứ diễn ra bên ngoài và bên trong**.
 
-Ella không ngồi thiền, Ella không nghe các bài giảng, Ella không đọc sách, Ella không tham khảo những người khác. Ella vẫn đi chợ, nấu cơm, đón con, học bài, cuộc sống tiếp diễn ngày qua ngày.
+Ella không ngồi thiền, Ella không nghe các bài giảng, Ella không đọc thêm sách nữa, Ella không tham khảo những người khác. Ella vẫn đi chợ, nấu cơm, đón con, học bài, cuộc sống tiếp diễn ngày qua ngày.
 
 # Những chia sẻ trong một quá trình
 
