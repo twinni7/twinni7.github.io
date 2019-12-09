@@ -31,6 +31,8 @@ Ella chia sẻ: "Em nhận ra một sự thật, đó là em thật cô độc. 
 
 Ella chia sẻ: "Em nhận ra cuộc sống rất ngắn ngủi. Thời gian của một người được đo bằng những trải nghiệm của người đó." Từ đó Ella ít khi cảm thấy buồn chán. Ella tập trung hơn vào việc mình đang làm. Ella thường phàn nàn nếu ai đó chen ngang vào việc đang làm.
 
+Ella chia sẻ: "Em nhận ra mọi thứ đều có sự đánh đổi, thật là khó để nói rằng ai hơn ai. Nhưng đây chính là những gì em đã lựa chọn." Từ đó Ella không còn ganh tị với ai. Ella ngừng nhìn vào người khác, không còn ham muốn những thứ mà người khác có. Ella kết thúc mọi sự so sánh, không còn thấy tự ti, cảm thấy tự tin hơn, biết giá trị mình ở đâu. Ella thấy mình giống tất cả mọi người. Ella không xấu hổ về những điểm yếu, cũng không tự hào về những thứ mình có, biết cách trân trọng tất cả. (đoạn này là gõ ngay lúc Ella đang nói thao thao)
+
 # Trải nghiệm mới
 
 Đó là một buổi chiều mùa đông tháng 12/2019, Ella ngồi tàu về nhà cùng bé Tôm. Ella chợt thấy mọi thứ xung quanh hiện ra vô cùng rõ ràng. Ella nhìn thấy cảm xúc trên khuôn mặt của các hành khách xung quanh. Ella nghe thấy rõ những xì xào nói chuyện. Ella nhận ra những vết bấn trên sàn mà trước giờ chưa bao giờ để ý. Ella trở nên rất nhạy cảm với các mùi xung quanh. Mọi giác quan trở nên nhạy bén.
