@@ -33,7 +33,7 @@ Ella chia sẻ: "Em nhận ra cuộc sống rất ngắn ngủi. Thời gian c�
 
 # Trải nghiệm mới
 
-Một buổi chiều ngồi tàu về nhà cùng bé Tôm. Ella chợt thấy mọi thứ xung quanh hiện ra vô cùng rõ ràng. Ella nhìn thấy cảm xúc trên khuôn mặt của các hành khách xung quanh. Ella nghe thấy rõ những xì xào nói chuyện. Ella nhận ra những vết bấn trên sàn mà trước giờ chưa bao giờ để ý. Ella trở nên rất nhạy cảm với các mùi xung quanh. Mọi giác quan trở nên nhạy bén.
+Đó là một buổi chiều mùa đông tháng 12/2019, Ella ngồi tàu về nhà cùng bé Tôm. Ella chợt thấy mọi thứ xung quanh hiện ra vô cùng rõ ràng. Ella nhìn thấy cảm xúc trên khuôn mặt của các hành khách xung quanh. Ella nghe thấy rõ những xì xào nói chuyện. Ella nhận ra những vết bấn trên sàn mà trước giờ chưa bao giờ để ý. Ella trở nên rất nhạy cảm với các mùi xung quanh. Mọi giác quan trở nên nhạy bén.
 
 Ella chia sẻ:
 
