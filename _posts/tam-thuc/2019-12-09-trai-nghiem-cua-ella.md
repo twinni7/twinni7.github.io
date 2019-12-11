@@ -47,6 +47,7 @@ Ella chia sẻ:
  - "Đỡ cảm thấy căng thẳng khi ra ngoài, mọi thứ đều thư giãn, chậm rãi, nhẹ nhàng, không phải gồng người như trước. Những reaction của mình với người xung quanh lại rất hợp lý"
  - "Cũng tốt. Điều tệ nhất là trên đường đi học rất nhiều cứt, và em lúc nào cũng nhìn thấy rất rõ, thật là ghê quá đi mất"
  - "2 hôm nay, em buổi chiều tối không tắm nhưng không cảm thấy nhơm nhớp bẩn bẩn như mọi khi, mà thấy vẫn rất trong lành. Mặc dù 1 ngày đi ra ngoài nhiều, đi chợ nấu cơm làm mọi việc, vậy mà tới tận bây giờ đều không thấy mình bị ngứa ngáy bẩn thỉu. Mà thấy 1 cảm giác rất trong lành như đang uống 1 dòng nước mát và tinh khiết"
+ - "cảm thấy không chán với bất kỳ thứ gì, kể cả ngồi nhìn xuống sàn nhà hồi lâu, nhìn mấy con ốc trên tàu. Lúc nào cũng thấy thú vị, không hiểu, giống như là kể cả con ốc trên tàu cũng rất hấp dẫn. Mình tìm hiểu và không hết thứ để hiểu về 1 con ốc trên tàu"
 
 Ella chia sẻ cụ thể hơn về chính trải nghiệm mới như sau:
 
