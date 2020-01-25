@@ -4,6 +4,9 @@ categories:
  - sống đẹp
 tags:
  - tâm hồn đẹp
+header:
+  overlay_image: /images/newyear2020.jpg
+  overlay_filter: 0.7
 last_modified_at: 2020-01-25
 ---
 

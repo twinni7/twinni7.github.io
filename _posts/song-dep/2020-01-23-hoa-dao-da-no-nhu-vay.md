@@ -6,7 +6,7 @@ tags:
  - nhân quả
 header:
   overlay_image: /images/hoa-dao-ngay-tet.jpg
-  overlay_filter: 0.5
+  overlay_filter: 0.7
 last_modified_at: 2020-01-23
 ---
 
