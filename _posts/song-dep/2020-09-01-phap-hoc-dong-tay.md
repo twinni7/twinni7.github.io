@@ -10,7 +10,7 @@ header:
 last_modified_at: 2020-09-01
 ---
 
-Xin chia sẻ những nguồn Phật học thú vị
+Hoan hỉ chia sẻ những nguồn Phật học thú vị :)
 
 Thời kỳ bùng nổ thông tin, việc tiếp cận với pháp học qua Internet thật dễ dàng. Rất rất nhiều sách báo, pháp thoại, hội nhóm có thể tìm truy cập rất lợi lạc. Dưới đây xin liệt kê một số vị giảng sư, thiền sư và guru mà cá nhân mình thường nghe và xem.
 
@@ -68,8 +68,13 @@ Những vị guru giác ngộ giải đáp và chỉ dẫn những vấn đề t
 
 ## Các nguồn khác
 
- - Nhóm thiền Vipassana: https://www.facebook.com/groups/thuchanhvipassana
- - Số lượng sách Phật học rất lớn: https://budsas.net/sach/
- - Thư viện hoa sen: https://thuvienhoasen.org/
+ - Nhóm thiền Vipassana: 
+   - https://www.facebook.com/groups/thuchanhvipassana
+
+ - Số lượng sách Phật học rất lớn: 
+   - https://budsas.net/sach/
+   
+ - Thư viện hoa sen: 
+   - https://thuvienhoasen.org/
 
 
