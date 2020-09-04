@@ -4,6 +4,9 @@ categories:
  - sống đẹp
 tags:
  - tâm hồn đẹp
+header:
+  overlay_image: /images/abstract-01.jpg
+  overlay_filter: 0.7
 last_modified_at: 2020-05-13
 ---
 
