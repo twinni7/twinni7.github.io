@@ -1,7 +1,7 @@
 ---
 title: "Tây du ký nói chuyện cái Tâm"
 categories:
- - sống đẹp
+ - tâm thức
 tags:
  - Phật pháp
 header:
