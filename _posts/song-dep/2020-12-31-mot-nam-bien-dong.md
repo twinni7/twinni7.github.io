@@ -3,15 +3,14 @@ title: "2020, một năm biến động"
 categories:
  - sống đẹp
 tags:
- - 2020
-last_modified_at: 2020-12-31
+ - năm mới
 header:
   overlay_image: /images/abstract-08-sunrise.jpg
   overlay_filter: 0.7
+last_modified_at: 2020-12-31
 ---
 
 2020, một năm đầy biến động trên toàn thế giới.
-
 
 Năm 2020 khép lại chứng kiến nhiều thiên tai và thảm họa cướp đi sự bình yên ở khắp nơi trên thế giới và tạo ra sự hỗn loạn khủng khiếp. Dưới đây là những thảm họa tồi tệ nhất 2020 được thống kê bởi [World Vision](https://www.worldvision.org/disaster-relief-news-stories/worst-disasters-2020).
 
