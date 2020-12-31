@@ -4,9 +4,6 @@ categories:
  - sống đẹp
 tags:
  - năm mới
-header:
-  overlay_image: /images/abstract-08-sunrise.jpg
-  overlay_filter: 0.7
 last_modified_at: 2020-12-31
 ---
 
