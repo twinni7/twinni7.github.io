@@ -5,7 +5,7 @@ categories:
 tags:
  - Phật pháp
 header:
-  overlay_image: /images/abstract-08-sunrise.jpg
+  overlay_image: /images/abstract-05-horizon-tree.jpg
   overlay_filter: 0.7
 last_modified_at: 2021-01-03
 ---
