@@ -4,8 +4,9 @@ categories:
  - tâm thức
 tags:
  - Phật pháp
+ - thiền
 header:
-  overlay_image: /images/abstract-05-clovers.jpg
+  overlay_image: /images/abstract-07-breakthechain.jpg
   overlay_filter: 0.7
 last_modified_at: 2021-01-03
 ---
