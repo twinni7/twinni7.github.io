@@ -16,9 +16,9 @@ Tóm tắt các giai đoạn hành thiền trong cuốn sách Từ chánh niệm
 
 <!--more-->
 
-# Giai đoạn 1: Tỉnh giác về giây phút hiện tại
+**Giai đoạn 1: Tỉnh giác về giây phút hiện tại**
 
-Buông bỏ gánh nặng quá khứ và tương lai. Buông bỏ quá khứ có nghĩa là không nghĩ đến công việc, gia đình, những cam kết, những tránh niệm, những quãng đời niên thiếu, những kỷ niệm vui buồn. Buông bỏ tương lai có nghĩa là không nghĩ đến những dự đoán, sợ hãi, kế hoạch và mong đợi.
+Buông bỏ gánh nặng quá khứ và tương lai. Buông bỏ quá khứ có nghĩa là không nghĩ đến công việc, gia đình, những cam kết, những trách niệm, những quãng đời niên thiếu, những kỷ niệm vui buồn. Buông bỏ tương lai có nghĩa là không nghĩ đến những dự đoán, sợ hãi, kế hoạch và mong đợi.
 
 Trong lúc hành thiền cần tránh những suy nghĩ như: Còn bao nhiêu phút nữa đây, ta còn phải ngồi bao lâu nữa.
 
@@ -26,7 +26,7 @@ Trở ngại: sự rong ruổi về quá khứ hay tương lai.
 
 Cảm giác: an tịnh.
 
-# Giai đoạn hai: Tỉnh giác im lặng về giây phút hiện tại
+**Giai đoạn hai: Tỉnh giác im lặng về giây phút hiện tại**
 
 Im lặng nghĩa là không bình luận. Ở giai đoạn này, chúng ta không khởi lên bất kỳ suy nghĩ gì đối với mọi việc diễn ra xung quanh. Phương pháp để tĩnh lặng là quan sát chặt chẽ mọi thứ diễn ra như âm thanh, hình ảnh, cảm giác... để tâm trí bận rộn vào việc quan sát hơn là việc đánh giá suy nghĩ.
 
@@ -36,7 +36,7 @@ Trở ngại: tiếng nói nội tâm.
 
 Cảm giác: nhẹ nhõm, thanh thản, tự do.
 
-# Giai đoạn ba: Tỉnh giác im lặng về hơi thở trong giây phút hiện tại
+**Giai đoạn ba: Tỉnh giác im lặng về hơi thở trong giây phút hiện tại**
 
 Thay vì tỉnh giác im lặng về những gì xảy ra trong tâm, chúng ta chọn sự tỉnh giác im lặng về một đối tượng. Đối tượng đó có thể là hơi thở, lòng từ bi, hay các đề mục quán niệm của thiền định. Ở đây chúng ta chọn đối tượng là hơi thở.
 
@@ -46,7 +46,7 @@ Trở ngại: khuynh hướng kiểm soát hơi thở.
 
 Cảm giác: sự nhẹ nhàng phát sinh an lạc.
 
-# Giai đoạn bốn: Hoàn toàn duy trì sự chú tâm vào hơi thở
+**Giai đoạn bốn: Hoàn toàn duy trì sự chú tâm vào hơi thở**
 
 Sự chú tâm vào hơi thở ở giai đoạn trên trở nên liên tục trong từng phút giây. Chúng ta cảm nhận được hơi thở từ khi nó bắt đầu khởi lên đến khi chấm dứt, và những khoảng ngừng giữa mỗi hơi thở, không sót một giây nào. Giai đoạn này là sự buông xả hoàn toàn mọi chuyện trong vũ trụ, không còn chút bó buộc nào ngoài cảm nghiệm về hơi thở đang diễn ra trong im lặng.
 
@@ -57,7 +57,7 @@ Trở ngại: sự chủ động, phần lớn là tự ngã của con người 
 Cảm giác: hơi thở an bình này vô cùng tuyệt diệu. Khi hơi thở dần biến mất thì chỉ còn "vẻ đẹp" lưu lại.
 
 
-# Giai đoạn năm: Hoàn toàn duy trì sự chú tâm vào hơi thở tuyệt đẹp
+**Giai đoạn năm: Hoàn toàn duy trì sự chú tâm vào hơi thở tuyệt đẹp**
 
 Giai đoạn bốn là một hơi thở phập phồng bình thường thì nay chuyển sang một hơi thở tuyệt đẹp. Giai đoạn này trôi chảy tự nhiên từ giai đoạn trước, chúng ta không cần cố gắng làm gì.
 
@@ -65,7 +65,7 @@ Tri giác về hơi thở vào hay hơi thở ra, hơi thở ở đoạn đầu,
 
 Cảm giác: hài lòng sâu lắng, hoan hỉ khi quan sát hơi thở tuyệt đẹp.
 
-# Giai đoạn sáu: Cảm nghiệm định tướng tuyệt đẹp
+**Giai đoạn sáu: Cảm nghiệm định tướng tuyệt đẹp**
 
 Hành giả đã hoàn toàn buông xả thân thể, ý niệm và sáu căn (gồm cả nhận biết về hơi thở) đến nỗi chỉ còn lịa một biểu hiện tâm thức tuyệt đẹp, đó là định tướng.
 
@@ -80,11 +80,11 @@ Hành giả đã hoàn toàn buông xả thân thể, ý niệm và sáu căn (g
  - Nó lạ lùng nhưng có sức hấp dẫn mãnh liệt
  - Nó là một đối tượng đơn thuần tuyệt đẹp.
 
-Trở ngại: mức độ mãn nguyện đang còn quá nông cạn. Bạn vẫn còn đang muốn một cái gì đó và chủ động xen vào. Để vượt qua, hành giả cần có niềm tin vào định tướng.
+Trở ngại: mức độ mãn nguyện đang còn quá nông cạn. Hành giả vẫn còn đang muốn một cái gì đó và chủ động xen vào. Để vượt qua, hành giả cần có niềm tin vào định tướng.
 
 Cảm giác: là trạng thái xả ly và trạng thái mãn nguyện cực kỳ sâu lắng.
 
-# Giai đoạn bảy: nhập định, nhập tầng thiền (Jhāna)
+**Giai đoạn bảy: nhập định, nhập tầng thiền (Jhāna)**
 
 Trở ngại: có hai chướng ngại thông thường ở cổng vào định là niềm hưng phấn và nỗi sợ hãi. Niềm hưng phấn làm tâm trở nên hồi hộp: "Ồ, nó đây rồi!", cần được nén xuống nhường chỗ cho sự thụ động tuyệt đối. Nỗi sợ hãi khởi lên từ chỗ nhận ra sức mạnh và niềm hỷ lạc tuyệt đối của cảnh giới định, hoặc do nhận ra rằng khi nhập định sẽ phải bỏ lại đằng sau cái gì đó - cái đó chính là bạn! Tâm tạo tác im lặng trước khi nhập định, chỉ còn tâm nhận biết vẫn còn hoạt động. Đó là kinh nghiệm bị tước bỏ mọi quyền kiểm soát trong lúc vẫn hoàn toàn tỉnh thức. Nỗi sợ hãi đó có thể vượt qua nhờ niềm tin vào lời dạy của đức Phật và niềm tin vào nguồn hỷ lạc của cảnh giới định.
 
