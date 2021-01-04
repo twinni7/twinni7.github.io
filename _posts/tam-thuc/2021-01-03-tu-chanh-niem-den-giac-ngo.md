@@ -6,13 +6,15 @@ tags:
  - Phật pháp
  - thiền
 header:
-  overlay_image: /images/abstract-07-breakthechain.jpg
+  overlay_image: /images/abstract-06-oceannight.jpg
   overlay_filter: 0.7
 last_modified_at: 2021-01-03
+excerpt_separator: <!--more-->
 ---
 
 Tóm tắt các giai đoạn hành thiền trong cuốn sách Từ chánh niệm đến giác ngộ của thiền sư Ajahn Brahm.
 
+<!--more-->
 
 # Giai đoạn 1: Tỉnh giác về giây phút hiện tại
 
