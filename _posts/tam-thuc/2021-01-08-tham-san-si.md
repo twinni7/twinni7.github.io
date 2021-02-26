@@ -38,6 +38,6 @@ Về mặt tích cực, tham là thu gom, sân là loại bỏ, si là tìm ki�
 
 # Tại sao lại cần loại trừ tham sân si?
 
-Khi nhu cầu vật chất tạm ổn, con nguời sẽ huớng đến những mục tiêu cao hơn. Đó là khám phá bản thân và vũ trụ, là tìm ra mục đích của sự tồn tại, là tìm ra hạnh phúc đích thực. Quá trình tìm kiếm đó gọi là *con đuờng tâm linh*. Để vuợt qua sự tồn tại vật lý này, con nguời phải thoát khỏi sự ràng buộc của thế giới vật chất và sinh tốn. Từ đó, con nguời cần rời bỏ những công cụ sinh tồn của mình, đó là tham sân si. Vì lẽ đó, thanh tịnh hóa tâm thức chính là điểm mấu chốt cho quá trình tiến hóa tiếp theo của con nguời.
+Khi nhu cầu vật chất tạm ổn, con nguời sẽ huớng đến những mục tiêu cao hơn. Đó là khám phá bản thân và vũ trụ, là tìm ra mục đích của sự tồn tại, là tìm ra hạnh phúc đích thực. Quá trình tìm kiếm đó gọi là *con đuờng tâm linh*. Để vuợt qua sự tồn tại vật lý này, con nguời phải thoát khỏi sự ràng buộc của thế giới vật chất. Từ đó, con nguời cần rời bỏ những công cụ sinh tồn của mình, đó là tham sân si. Vì lẽ đó, thanh tịnh hóa tâm thức chính là điểm mấu chốt cho quá trình tiến hóa tiếp theo của con nguời.
 
 Đó là con đuờng mà những vĩ nhân đã đi qua.
