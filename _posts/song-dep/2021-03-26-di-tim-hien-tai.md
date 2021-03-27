@@ -1,7 +1,7 @@
 ---
 title: "Đi tìm hiện tại"
 categories:
- - tâm thức
+ - sống đẹp
 tags:
  - chánh niệm
  - thiền
