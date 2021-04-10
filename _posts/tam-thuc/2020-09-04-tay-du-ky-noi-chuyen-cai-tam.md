@@ -62,7 +62,7 @@ Mục tiêu của đạo học là giải thoát con người khỏi sự trôi 
 
 Quá trình ngộ đạo được thể hiện phần nào qua tên gọi của 3 đồ đệ như thế này:
 
-**Ngộ Không** - Là nhận ra mọi sự đều là "Không" để diệt trừ tâm Sân. Khi chiêm nghiệm sự vận động liên tục và sự sinh diệt của vạn pháp, chúng ta thấy rặng mọi thù hận đều là nhất thời. Nếu thấy được cái bị thù ghét đã thay đổi và chấp nhận nó, chúng ta sẽ làm chủ được tâm Sân.
+**Ngộ Không** - Là nhận ra mọi sự đều là "Không" để diệt trừ tâm Sân. Khi chiêm nghiệm sự vận động liên tục và sự sinh diệt của vạn pháp, chúng ta thấy rằng mọi thù hận đều là nhất thời. Nếu thấy được cái bị thù ghét đã thay đổi và chấp nhận nó, chúng ta sẽ làm chủ được tâm Sân.
 
 **Ngộ Năng** - Là nhận ra bản năng của mình để diệt trừ tâm Tham. Đói phải ăn, mệt phải nghỉ, thấy đẹp thì yêu mến, đó là lẽ thường. Khi nhận ra sự sống được xây dựng từ những bản năng sinh tồn ấy, chúng ta thấu hiểu bộ máy sinh học và bộ máy tâm lý của mình. Thấu hiểu bản năng thì làm chủ được tâm Tham.
 
