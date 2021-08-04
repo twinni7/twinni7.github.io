@@ -19,7 +19,7 @@ Có [nhiều nguồn giải thích](https://www.google.com/search?q=%C3%BD+ngh%C
 
 Quả thật 5 thầy trò tượng trưng cho một hành giả duy nhất đang trên đường tu đạo. Dưới đây là hình tượng tôi thấy rõ ràng và hợp lý nhất:
 
- - Đường Tăng: tượng trưng cho chính bản thân người tìm đạo. Người ấy có mục tiêu rõ ràng và kiên định.
+ - Đường Tăng: tượng trưng cho chính bản thân người tìm đạo. Người ấy có mục tiêu và niềm tin kiên định.
  - Tôn Ngộ Không: tượng trưng cho tâm Sân. Tính khí hay nổi nóng của Ngộ Không có thể thấy qua việc đại náo thiên cung và những pha vung gậy đánh chết kẻ ác, thú ác và yêu quái. Tâm Sân có tính chất phá hủy và loại bỏ.
  - Trư Bát Giới: tượng trưng cho tâm Tham. Tánh khí tham ăn, mê ngủ và mê gái của lão Trư thì ai cũng thấy rõ. Tâm Tham có tính chất vơ vét, bảo vệ.
  - Sa Tăng: tượng trưng cho tâm Si. Tánh khí lầm lì và ít sáng kiến của Sa hòa thượng thể hiện điều này. Tâm si có tính chất mê tối, theo đuôi, hành động theo quán tính.
@@ -43,9 +43,9 @@ Mỗi tâm ấy lại sinh ra hành động tương ứng (gọi là hành):
  - Tâm Sân khiến ta muốn phá bỏ (ví dụ thấy xấu thì muốn vứt đi)
  - Tâm Si khiến chúng ta muốn tìm kiếm (ví dụ ngồi im thì khó chịu ngứa ngáy, phải làm gì đó)
 
-Kết quả của hành động đó sẽ được lưu giữ vào bộ nhớ trong não (gọi là thức). Và thế là chúng ta đã thu nạp và tích lũy thêm một yếu tố mới. Cái tích lũy đấy gọi là Nghiệp.
+Kết quả của những hành động đó được lưu giữ vào bộ nhớ trong não (gọi là thức). Và thế là chúng ta đã thu nạp và tích lũy thêm một yếu tố mới. Cái tích lũy đấy gọi là Nghiệp.
 
-Đây chính là quá trình vận hành của một sự sống mà giáo lý Phật gọi là Ngũ uẩn, bao gồm: thân thể, cảm xúc, tư tưởng, hành động, tiềm thức (gọi là sắc, thọ, tưởng, hành, thức). Nghiệp là chuỗi sự kiện đến với chúng ta và được lưu giữ lại nơi tiềm thức.
+Đây là quá trình vận hành của một sự sống mà giáo lý Phật gọi là Ngũ uẩn, bao gồm: thân thể, cảm xúc, tư tưởng, hành động, tiềm thức (gọi là sắc, thọ, tưởng, hành, thức). Nghiệp là chuỗi sự kiện đến với chúng ta và được lưu giữ lại nơi tiềm thức.
 
 # Vòng kìm kẹp không hồi kết
 
